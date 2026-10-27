@@ -4,13 +4,22 @@
 
 Sou o Johny Aires, tenho 20 e poucos anos e cresci entre comandos e teclados. Na PS3 descobri o mundo dos cheats e depois levei isso para o FiveM e GTA V no PC. O que começou como curiosidade de miúdo, quando por curiosidade acabei por explorar o site e o sistema da escola, virou obsessão por perceber como tudo funciona por dentro.
 
-Sempre fui viciado em filmes de ação e investigação. Esse gosto acabou por sair do ecrã para a vida real. Comecei a estudar por conta própria investigação, espionagem e contra-espionagem, a querer perceber como se pensa, como se antecipa, como se está um passo à frente. Levei isso longe demais e acabei por pagar por isso, cheguei a ser preso.
+Sempre fui viciado em filmes de ação e investigação. Esse gosto saiu do ecrã para a vida real. Comecei a estudar por conta própria investigação, espionagem e contra-espionagem, a querer perceber como se pensa, como se antecipa, como se está um passo à frente. Levei isso longe demais e acabei por pagar por isso, cheguei a ser preso. Fui investigado com acusações pesadas e aprendi da pior maneira.
 
 Pelo meio fui à luta. Completei o 12º ano, tirei formação em Mecatrónica e Logística, fiz vários cursos online e tornei-me motorista TVDE e de pesados C+E. Já fiz estrada de norte a sul de Portugal e Espanha.
 
-Nem tudo foi fácil. Estive do outro lado, fui investigado com acusações pesadas e aprendi da pior maneira.
+Hoje canalizo tudo isso para análise tática:
 
-Hoje a minha corrida é outra. Tenho a cabeça no sítio, vida tranquila e foco no futuro. Sou daqueles que quando conhece algo, quer aprender tudo sobre isso. Gosto de saber um pouco de tudo e de estar sempre à frente. O passado não me define, mas ensinou-me exatamente quem não quero voltar a ser. Hoje preparo-me para casar e ser pai.
+O QUE DOMINO:
+Análise de Mapa / Mapeação Tática / Análise de Emboscada / Emboscadas
+Movimentação Tática e Análise de Falhas 
+Cibersegurança- Spyware, Phishing, invasão, dados - sei como se entra
+Eletrónica, qualquer equipamento, Rede Onion.
+Armamento, química, explosivos - não é teoria, é facilidade de aprendizagem e uso
+
+Seja num mapa, numa rota ou num sistema, leio o terreno, vejo falhas, pontos cegos e antecipo o movimento antes de acontecer. O que antes era curiosidade por quebrar, hoje é conhecimento para proteger e antecipar.
+
+Tenho a cabeça no sítio, vida tranquila e foco no futuro. O passado não me define, mas ensinou-me exatamente quem não quero voltar a ser. Hoje preparo-me para casar e ser pai.
 
 <p align="left">
     <a href="https://www.youtube.com/@SirAires8">
