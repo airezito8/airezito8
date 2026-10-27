@@ -10,13 +10,6 @@ Pelo meio fui à luta. Completei o 12º ano, tirei formação em Mecatrónica e 
 
 Hoje canalizo tudo isso para análise tática:
 
-O QUE DOMINO:
-Análise de Mapa / Mapeação Tática / Análise de Emboscada / Emboscadas
-Movimentação Tática e Análise de Falhas 
-Cibersegurança- Spyware, Phishing, invasão, dados - sei como se entra
-Eletrónica, qualquer equipamento, Rede Onion.
-Armamento, química, explosivos - não é teoria, é facilidade de aprendizagem e uso
-
 Seja num mapa, numa rota ou num sistema, leio o terreno, vejo falhas, pontos cegos e antecipo o movimento antes de acontecer. O que antes era curiosidade por quebrar, hoje é conhecimento para proteger e antecipar.
 
 Tenho a cabeça no sítio, vida tranquila e foco no futuro. O passado não me define, mas ensinou-me exatamente quem não quero voltar a ser. Hoje preparo-me para casar e ser pai.
