@@ -2,7 +2,13 @@
 
 **`Desenvolvedor FullStack`**
 
-Me chamo Johny Aires, tenho 20 anos e poucos Anos sou natural do Porto. Concluí o ensino médio no Porto, com o curso técnico Mecatrónica e Logística . Sou apaixonada por tecnologia e compartilho meu conhecimento através do meu canal no YouTube "[[Larissa Kich](https://www.youtube.com/@larissakich](https://www.youtube.com/@SirAires8))".
+Sou o Johny Aires. Tenho 20 e poucos anos e cresci entre comandos e teclados. Na PS3 descobri o mundo dos cheats, depois levei isso para o FiveM e GTA V no PC. O que começou como curiosidade - como quando era miúdo e pus o site da escola offline e entrei no Sistema- virou obsessão por perceber como tudo funciona.
+
+Estudei Mecatrónica e Logística, completei o 12º ano, fiz cursos online e fui à luta: sou motorista TVDE e de pesados C+E, já fiz estrada de norte a sul de Portugal e Espanha.
+
+Nem tudo foi fácil. Estive do outro lado, fui preso, fui investigado com acusações pesadas. Aprendi da pior maneira.
+
+Hoje a minha corrida é outra. Vida tranquila, cabeça no sítio, a preparar-me para casar e ser pai. O passado não me define, mas explicou-me quem eu não quero voltar a ser.
 
 <p align="left">
     <a href="https://www.youtube.com/@SirAires8">
