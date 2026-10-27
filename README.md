@@ -2,13 +2,15 @@
 
 **`Desenvolvedor FullStack`**
 
-Sou o Johny Aires. Tenho 20 e poucos anos e cresci entre comandos e teclados. Na PS3 descobri o mundo dos cheats, depois levei isso para o FiveM e GTA V no PC. O que começou como curiosidade - como quando era miúdo e pus o site da escola offline e entrei no Sistema- virou obsessão por perceber como tudo funciona.
+Sou o Johny Aires, tenho 20 e poucos anos e cresci entre comandos e teclados. Na PS3 descobri o mundo dos cheats e depois levei isso para o FiveM e GTA V no PC. O que começou como curiosidade de miúdo, quando por curiosidade acabei por explorar o site e o sistema da escola, virou obsessão por perceber como tudo funciona por dentro.
 
-Estudei Mecatrónica e Logística, completei o 12º ano, fiz cursos online e fui à luta: sou motorista TVDE e de pesados C+E, já fiz estrada de norte a sul de Portugal e Espanha.
+Sempre fui viciado em filmes de ação e investigação. Esse gosto acabou por sair do ecrã para a vida real. Comecei a estudar por conta própria investigação, espionagem e contra-espionagem, a querer perceber como se pensa, como se antecipa, como se está um passo à frente. Levei isso longe demais e acabei por pagar por isso, cheguei a ser preso.
 
-Nem tudo foi fácil. Estive do outro lado, fui preso, fui investigado com acusações pesadas. Aprendi da pior maneira.
+Pelo meio fui à luta. Completei o 12º ano, tirei formação em Mecatrónica e Logística, fiz vários cursos online e tornei-me motorista TVDE e de pesados C+E. Já fiz estrada de norte a sul de Portugal e Espanha.
 
-Hoje a minha corrida é outra. Vida tranquila, cabeça no sítio, a preparar-me para casar e ser pai. O passado não me define, mas explicou-me quem eu não quero voltar a ser.
+Nem tudo foi fácil. Estive do outro lado, fui investigado com acusações pesadas e aprendi da pior maneira.
+
+Hoje a minha corrida é outra. Tenho a cabeça no sítio, vida tranquila e foco no futuro. Sou daqueles que quando conhece algo, quer aprender tudo sobre isso. Gosto de saber um pouco de tudo e de estar sempre à frente. O passado não me define, mas ensinou-me exatamente quem não quero voltar a ser. Hoje preparo-me para casar e ser pai.
 
 <p align="left">
     <a href="https://www.youtube.com/@SirAires8">
